@@ -99,7 +99,12 @@ Fine，这样的人，我居然一直都没有打死她，我都觉得拉芙山�
 客厅这气氛实在是过于尴尬了，宗在专心撸猫，叶苏敏在那儿盯着猫但猫根本不理她，她也不敢上手，结果就坐那儿看着，小贤在给宗帮忙。而猫的主人，雪儿，东张西望着，不知道在找什么。  
 “啊，春卷，你来啦”宗像抓住了救命稻草望向我。  
 “哈哈哈哈，我就来随便看看，你们忙，你们忙，我回去了”我转头就跑。                    
-<img width="509" alt="image" src="https://user-images.githubusercontent.com/36542884/120939718-9736e880-c719-11eb-9d4d-1b72a12a553b.png">
-<img width="538" alt="image" src="https://user-images.githubusercontent.com/36542884/120939746-b9c90180-c719-11eb-901f-426a99e5d562.png">
+<img width="510" alt="image" src="https://user-images.githubusercontent.com/36542884/120939718-9736e880-c719-11eb-9d4d-1b72a12a553b.png">
+<img width="510" alt="image" src="https://user-images.githubusercontent.com/36542884/120939746-b9c90180-c719-11eb-901f-426a99e5d562.png">
+
+<img width="510" alt="image" src=“https://user-images.githubusercontent.com/36542884/123236611-3b23e080-d4dd-11eb-90b2-63a632f153a4.png”>
+<img width="510" alt="image" src="https://user-images.githubusercontent.com/36542884/123236804-673f6180-d4dd-11eb-842c-10bee32c9c26.png">
+
+
 
 [back](https://kano1021.github.io/kanosstories/)
